@@ -1,3 +1,10 @@
+> [!IMPORTANT]
 > Work in Progess !!!
 
-# Dennis Roth
+## Projects
+
+## Links
+
+---
+
+**Last Update: 16.07.2026**
